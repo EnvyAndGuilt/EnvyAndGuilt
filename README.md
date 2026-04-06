@@ -10,6 +10,10 @@ ${\color{#D481AB}\textsf{𝐓ⱺ 𝕜𝓷ⱺω 𝖆𝖇𝖔𝓾𝓽 𝓂ℯ, �
 
 [𝓡𝕖𝒏ƚɾყ !](https://rentry.co/imjsskeet)
 
+${\color{#D481AB}\textsf{𝓐𝒍𝒔𝒐 𝓰ⱺ α𐓣ᑯ 𝖘𝓲𝓰𝘯 ɱყ}}$ 
+
+[𝓐𝕥𝗮𝔟ⱺⱺ𝘬 !](https://skeet.atabook.org/)
+
 ![image alt](https://github.com/EnvyAndGuilt/EnvyAndGuilt/blob/main/skeet%20and%20matt.webp?raw=true)
 
 
