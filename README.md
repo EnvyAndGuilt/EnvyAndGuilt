@@ -4,7 +4,7 @@
 
 ${\color{#F7C6DC}\textsf{𝓗𝒂ρρ𝐢𝐥𝐲⠀⠀⠀⠀𝓽α𝗄𝖾𝙣⠀⠀⠀⠀ᑲ𝙮}}$ 
 
-[𝓂𝙮 𝐁𝖑𝓸𝒔𝒔𝓸m](https://github.com/mafiosohubby)
+[𝓜ⱺ𝒏 𝐛𝖾𝐚𝖚 𝓶ⱺ𝙠𝒂 ꨄ︎](https://github.com/mafiosohubby)
 
 ![image alt](https://github.com/EnvyAndGuilt/EnvyAndGuilt/blob/main/skeet%20presentation.webp?raw=true)
 
