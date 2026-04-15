@@ -4,9 +4,9 @@
   
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
- ${\color{#FFC4D9}\textsf{ㅤㅤ𝐌α𝗍𝖼ɦ𝗂𐓣𝗀ㅤㅤㅤω𝗂𝗍ɦㅤㅤㅤ⤸}}$ 
+ ${\color{#FFC4D9}\textsf{𝐌α𝗍𝖼ɦ𝗂𐓣𝗀ㅤㅤㅤω𝗂𝗍ɦㅤㅤㅤ⤸}}$ 
  
- ${\color{#FFC4D9}\textsf{ㅤ𝓬𝒊𝒓𝓾ㅤ♡}}$ [ㅤ𝓬𝓾𝒕𝒊𝒆!](https://github.com/ivoryyyyyyyyyyyyyyyyyy)
+ ${\color{#FFC4D9}\textsf{𝓬𝒊𝒓𝓾ㅤ♡}}$ [ㅤ𝓬𝓾𝒕𝒊𝒆!](https://github.com/ivoryyyyyyyyyyyyyyyyyy)
 
 ![image alt](https://github.com/EnvyAndGuilt/EnvyAndGuilt/blob/main/skeet%20presentation.webp?raw=true)
 
