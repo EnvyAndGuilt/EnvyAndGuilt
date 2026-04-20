@@ -8,7 +8,7 @@
  
  ${\color{#FFC4D9}\textsf{𝓜𝕪ㅤꕀㅤ𝓒𝒊𝒓𝓾ㅤ}}$ [♡](https://github.com/realciruzz)
 
-![image alt](https://github.com/EnvyAndGuilt/EnvyAndGuilt/blob/main/skeet%20presentation.webp?raw=true)
+![image alt](https://github.com/EnvyAndGuilt/EnvyAndGuilt/blob/c2fdeff9d7ebd6b42eb70e525d4c83df161b45a8/%C3%B1%C3%B1%C3%B1%C3%B1%C3%B1.webp)
 
 ${\color{#D481AB}\textsf{𝓓𝓸𝒏'𝒕 𝒃𝒆 𝒶𝒇𝒓𝒶𝒊𝒅 𝟐 𝒕𝒶𝒍𝒌 𝒕𝒐 𝒎𝒆.}}$ ${\color{#D481AB}\textsf{𝐄𝗏𝓮𝗋𝗒ⱺ𐓣𝖾 𝒊𝒔 ω𝓮𝒍𝒄ℴꭑ𝓮 !}}$
 
